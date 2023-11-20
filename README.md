@@ -1,0 +1,1 @@
+# The-Art-Of-Design-Patterns-Summer-Training-23
